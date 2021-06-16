@@ -1,0 +1,2 @@
+# Freedom
+travel blog
